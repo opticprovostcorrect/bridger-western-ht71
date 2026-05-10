@@ -1,4 +1,4 @@
-
+Experience bridger western like never before with exclusive bridger western Scripts, the #1 Script. Includes unlimited stamina and god mode for
 
 
 
